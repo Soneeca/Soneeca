@@ -7,4 +7,6 @@
 - 📫 How to reach me: pedroian@usp.br
 - 😄 Pronouns: He/Him
 
-Sutendt
+Undergraduate of University of São Paulo in Electric Electrical Engineering
+
+Living in São Paulo
