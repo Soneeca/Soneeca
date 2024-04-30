@@ -12,6 +12,6 @@
 - 📫 How to reach me: pedroian@usp.br
 - 😄 Pronouns: He/Him
 
-Undergraduate of University of São Paulo in Electric Electrical Engineering
+Undergraduate of University of São Paulo in Electrical Engineering
 
 Living in São Paulo
